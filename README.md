@@ -7,3 +7,5 @@
 1000 shares will bring him back to life a la resurrection stone
 
 malfoy did nothing wrong, change my view
+
+malfoy had mommy issues 
