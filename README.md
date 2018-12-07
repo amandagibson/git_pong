@@ -5,3 +5,5 @@
 ## RIP Dumbledore, 1 like 1 prayer!
 
 1000 shares will bring him back to life a la resurrection stone
+
+malfoy did nothing wrong, change my view
